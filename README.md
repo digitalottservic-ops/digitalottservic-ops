@@ -31,5 +31,5 @@ Nos serveurs sont optimisés pour une compatibilité parfaite avec l'ensemble de
 ---
 
 <p align="center">
-  <b>🔥 Testez la stabilité de nos serveurs dès aujourd'hui sur <a href="https://iptv-france-abonnement.fr/">iptv-france-abonnement.fr</a></b>
+  <b>🔥 Testez la stabilité de nos serveurs dès aujourd'hui sur <a href="https://iptv-france-abonnement.fr/abonnement-iptv-france-premium-4k">iptv-france-abonnement.fr</a></b>
 </p>
